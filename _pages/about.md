@@ -7,4 +7,7 @@ redirect_from:
   - /about.html
 ---
 
-快速、可靠的 Minecraft 皮肤站
+我爱三月七
+三月七太可爱了
+三月七，你是我的神！！！
+
